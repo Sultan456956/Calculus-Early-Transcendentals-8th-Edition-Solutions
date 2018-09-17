@@ -1,0 +1,1 @@
+# Calculus-Early-Transcendentals-8th-Edition-Solutions
